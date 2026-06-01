@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-LUPO840510HJCNRS00
+LUPO840510HJCNRS00
